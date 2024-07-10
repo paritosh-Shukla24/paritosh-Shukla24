@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Gen AI
 - 📫 How to reach me shuklaparitosh4224@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I love to Explore and Create Some unique Stuff with LLM and LIM.
 
 <!---
 paritosh-Shukla24/paritosh-Shukla24 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
